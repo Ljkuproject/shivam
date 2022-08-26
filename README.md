@@ -1,2 +1,2 @@
 # shivam
-no
+electric items sells
